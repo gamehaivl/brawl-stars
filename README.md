@@ -133,7 +133,7 @@ Brawl Stars MOD APK được quan tâm vì giúp người chơi tiết kiệm th
 
 **Brawl Stars MOD APK** là lựa chọn phù hợp cho người yêu thích game hành động PvP tốc độ cao, nhiều nhân vật, nhiều chế độ và các trận đấu giàu tính cạnh tranh. Với tính năng **vô hạn tiền, vô hạn kim cương và mở khóa tất cả**, người chơi có thể trải nghiệm Brawl Stars linh hoạt hơn trên Android.
 
-Download Brawl Stars MOD APK tại **GAMEHAIVL** để tham gia đấu trường PvP, thử nhiều Brawler và chinh phục các chế độ chiến đấu hấp dẫn.
+Download Brawl Stars MOD APK tại **[GAMEHAIVL](https://gamehaivl.com/brawl-stars/)** để tham gia đấu trường PvP, thử nhiều Brawler và chinh phục các chế độ chiến đấu hấp dẫn.
 
 ---
 
